@@ -34,7 +34,7 @@ NTCのワークアウト（トレーニングメニュー）終了時の画面�
 
 画面下のワークアウト、カメラ、ポスターからワークアウトを選びます。シェア先にはTwitterを選びます。
 
-<img src="https://photos.app.goo.gl/4mCeawRQuhUzczWa8" height="300px" alt=""/>
+<img src="https://lh3.googleusercontent.com/pw/ACtC-3cFCsOyTxCtrmKlvDztKvP71y7rwJjfyxdVZ1TAP2O7MEchKPZD7_7hipB3CyGjOVmKn_Wctwv0NbCPV13BEO4U4-vVpmBidD0N29uwrEaQBZqmZg9gMz2BIdhiab3rD-dBDClDDEWKUp5s8KKvw3911w=w640-h1136-no?authuser=0" height="300px" alt=""/>
 
 ハッシュタグ \#電とれ を含めてツイートします。
 
