@@ -24,7 +24,7 @@
 
 ### NTCからのツイート
 
-<img src="https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9" height="300px" alt=""/>
+<img src="https://lh3.googleusercontent.com/pw/ACtC-3dkt25OSFYTFXxgLaz0OFETa8EIa4jQmy92dXba2Jct4iMIJLLYHOTq4TPp3xtXDRlVZTnIFK4ReKf4_XT41TkYbUDgdvTRvkExeGi3LREkfQbWDBjNk28gge05qcM9-Lc7d4B-OtjUBh98JmS7CiHhKw=w640-h1136-no?authuser=0" height="300px" alt=""/>
 
 ![](https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9)
 
