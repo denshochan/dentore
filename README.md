@@ -24,15 +24,15 @@
 
 ### NTCからのツイート
 
-<img src="https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9" height="300" alt=""/>
+<img src="https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9" height="300px" alt=""/>
 
 NTCのワークアウト（トレーニングメニュー）終了時の画面で、右上の↑みたいなボタンを押します。アクティビティの履歴からもこの画面にアクセスできます。
 
-<img src="https://photos.app.goo.gl/M8zVeAtoaQJiRnuF7" height="300" alt=""/>
+<img src="https://photos.app.goo.gl/M8zVeAtoaQJiRnuF7" height="300px" alt=""/>
 
 画面下のワークアウト、カメラ、ポスターからワークアウトを選びます。シェア先にはTwitterを選びます。
 
-<img src="https://photos.app.goo.gl/4mCeawRQuhUzczWa8" height="300" alt=""/>
+<img src="https://photos.app.goo.gl/4mCeawRQuhUzczWa8" height="300px" alt=""/>
 
 ハッシュタグ \#電とれ を含めてツイートします。
 
