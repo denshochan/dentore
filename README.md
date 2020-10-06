@@ -26,6 +26,8 @@
 
 <img src="https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9" height="300px" alt=""/>
 
+![](https://photos.app.goo.gl/n9Bg88fZ1Wnn3SYm9)
+
 NTCのワークアウト（トレーニングメニュー）終了時の画面で、右上の↑みたいなボタンを押します。アクティビティの履歴からもこの画面にアクセスできます。
 
 <img src="https://photos.app.goo.gl/M8zVeAtoaQJiRnuF7" height="300px" alt=""/>
