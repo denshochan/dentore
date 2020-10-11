@@ -30,6 +30,8 @@
 
 頑張ってる人への励ましと、筋肉の休め方などのアドバイスを期待したいです。
 
+コーチの任命責任は電書ちゃん(@denshochan)にあります。
+
 ### NTCからのツイート
 
 <img src="https://lh3.googleusercontent.com/pw/ACtC-3dkt25OSFYTFXxgLaz0OFETa8EIa4jQmy92dXba2Jct4iMIJLLYHOTq4TPp3xtXDRlVZTnIFK4ReKf4_XT41TkYbUDgdvTRvkExeGi3LREkfQbWDBjNk28gge05qcM9-Lc7d4B-OtjUBh98JmS7CiHhKw=w640-h1136-no?authuser=0" height="300px" alt=""/>
