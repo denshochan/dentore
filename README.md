@@ -22,6 +22,14 @@
 
 また、ヨガマットがあると運動しやすいです。電書ちゃんが使っているヨガマットは[こちら](https://amzn.to/36Dq91q)です。
 
+## コーチ
+
+筋トレ経験豊富なAliceさん（@meguru40379313 ）にお願いします。
+
+コーチに特に権限はありません。活動方法は自主に任せます。
+
+頑張ってる人への励ましと、筋肉の休め方などのアドバイスを期待したいです。
+
 ### NTCからのツイート
 
 <img src="https://lh3.googleusercontent.com/pw/ACtC-3dkt25OSFYTFXxgLaz0OFETa8EIa4jQmy92dXba2Jct4iMIJLLYHOTq4TPp3xtXDRlVZTnIFK4ReKf4_XT41TkYbUDgdvTRvkExeGi3LREkfQbWDBjNk28gge05qcM9-Lc7d4B-OtjUBh98JmS7CiHhKw=w640-h1136-no?authuser=0" height="300px" alt=""/>
