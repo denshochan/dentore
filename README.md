@@ -56,6 +56,6 @@ NTCのワークアウト（トレーニングメニュー）終了時の画面�
 - 某ラッパーの<q>Jahに無敵のマイク授かり</q>というライムにインスパイアされて命名。重量は左右それぞれ2kg。
 - 右手用に「**夢**」、左手用に「**希望**」の銘を持つとされるが、左右の区別がない商品なのでテープを貼って区別している。
 - [同じものがAmazonで1500円くらいで売っている](https://amzn.to/316U6Uf)。
-<img src="https://photos.app.goo.gl/mjBbAWLCw6g6CdDA6" height="300px" alt="無敵ダンベルの写真"/>
+<img src="https://lh3.googleusercontent.com/ty0AE_QvTk8TTuTFdEYZiu6Bx1GWBpsuMKWZTVvEQhPUAAL7XsNqqWpumo-yjDarYJaWPYSOziI7SeZEM9FcDTrFf-qufCj70_7zAyPVRJ8EbhvrfLailtlAWBEnzLPTh8huO_n2NfIoNTskUQ5VwBWm6_29JloU4CUA_o6JUfrfpdA4g-rBXS3eimWrMS7PLE56lDSnBLQIVy9VduqwJZ0fj3Czmu3SRfUDiCaXZzFp81TnGkF0NVrRoDvBW0yM7kXr3b3oiiHUbBu2_D9ro85goz2MAEZJzf15dvdNGsO_hQDPNYF-ggu4cIfP-OE8bCq857mxYpZI34mlzfPjzurwMBgGB3vEq69UjSvlQdZ_JViaiczPCQttFKkCBboG-ZRm_CJqrX-RDnKC5m5pSXcqQXcIUizPzXxXGHJWDa7ktLXDCZ8cy9pprA4k-8A8W07NudtIoeLfkceN_m6WhfcLFGLLXFwBTYcXRUT4WNpERiebBFRMfveWe-dH4maDor3WkYof_ebQ7nJSE7OZ7PWopcOTSf61JuzKSZVXMKLtCjEAJuLXX0slV3pNxdWRkJsqRa7a_8qkxXgY4KPCOOkRlNf-d_UqhotIygAy0oFWTFTC_7POBdhq3tuCDpbLC9WsiqWPwl2dJIIt8oQuaVPwZ7GBFGnlEKkDCkGnA2hWReE64JdFhUmhCof6lg=s1128-no?authuser=0" height="300px" alt="無敵ダンベルの写真"/>
 
 
